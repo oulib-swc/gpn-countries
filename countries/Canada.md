@@ -3,6 +3,7 @@
 
 
 ## capital
+Ottawa, CA
 
  
 ## official language
