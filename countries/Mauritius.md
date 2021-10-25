@@ -9,6 +9,6 @@ Port Louis
 None (English & French, *de facto*
 
 ## interesting trivia
-
+Mauritius was the only known home of the dodo.
 
 
