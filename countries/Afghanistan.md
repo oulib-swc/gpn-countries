@@ -3,7 +3,7 @@
 
 
 ## capital
-
+Kabul
  
 ## official language
 
