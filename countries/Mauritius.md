@@ -6,7 +6,7 @@
 Port Louis
  
 ## official language
-
+None (English & French, *de facto*
 
 ## interesting trivia
 
