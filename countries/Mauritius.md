@@ -1,6 +1,6 @@
 ##Mauritius
 ## population
-
+1.266 million
 
 ## capital
 
