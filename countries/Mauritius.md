@@ -3,7 +3,7 @@
 1.266 million
 
 ## capital
-
+Port Louis
  
 ## official language
 
